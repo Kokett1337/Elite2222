@@ -6,7 +6,7 @@
 
 ⚡ Website Not Yet | .
 
-💬 Discord ! Elite#2222 | Funny | Projects
+💬 Discord Kokett#1337 | Funny | Projects
 
 
 
